@@ -1,2 +1,2 @@
 # A-Vampire-Media-Masterlist
-An attempt to compile all the extant media/content about vampires (either translated/subtitled/available in English)
+Listen. I love vampires. So much. I spend countless hours trying to find all the extant and upcoming media/content about vampires. This is my attempt to create a site compiling all the extant content about vampires I can find, across format/content types.
